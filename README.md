@@ -1,0 +1,2 @@
+# trash
+scraps, junks, wasteland
